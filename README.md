@@ -2,4 +2,4 @@
 
 [$15 coupon at SafeBoxMart for registered user](https://www.safeboxmart.com/discount-coupon-safe-box)
 
-[Up to 20% discount for CCTV camera and IP camera package. Installation included.](https://www.safetrolley.com/products)
+[Up to 20% discount for CCTV camera and IP camera package. Installation included.](https://www.safetrolley.com/cctv-security-camera)
