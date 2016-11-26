@@ -1,0 +1,3 @@
+# robots.txt for https://safebox.github.io/
+
+User-agent: *
